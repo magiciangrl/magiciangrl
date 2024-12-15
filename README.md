@@ -4,12 +4,12 @@
 <p align="center">
  <img src="https://github.com/user-attachments/assets/39eef8bb-f897-42ae-a498-9bdd04574c3d">
 <p align="center">
-  **Interests** All yugioh series   Fanganronpa [esp dra drdt theafter although I've dabbled in2 most of them] Sportsanime Hetalia Cookierun unlisted
+  Interests All yugioh series   Fanganronpa [esp dra drdt theafter although I've dabbled in2 most of them] Sportsanime Hetalia Cookierun unlisted
 <p align="center"> 
   <img src="https://github.com/user-attachments/assets/87ca4bb9-af04-4e94-99b4-b92d144f9393">
 
 <p align="center">
-  **No dni** I rock with most people if you suck & i dont agree with you I just wont interact. I'm a huge believer in curating your own internet experience and thus hate when people get in2 pointless arguments with strangers. Remain cordial and mindful!
+  No dni I rock with most people if you suck / i dont agree with you I just wont interact. I'm a huge believer in curating your own internet experience and thus hate when people get in2 pointless arguments with strangers. Remain cordial and mindful!
 <p align="center">
 <img src="https://github.com/user-attachments/assets/b7cf7835-a918-4ecf-a6ba-f5c18d618177">
 <p align="center">
