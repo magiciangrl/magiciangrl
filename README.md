@@ -13,7 +13,7 @@
 <p align="center">
 <img src="https://github.com/user-attachments/assets/b7cf7835-a918-4ecf-a6ba-f5c18d618177">
 <p align="center">
-  I dont mind when people talk to me, actually i really like when people interact so my apologies if I come off as unapproachable I do appreciate it very much. C+h is welcomed! Obviously dnc or whatever but when i really think about it I dont care that much. It isnt an outlet ENCOURAGING people 2 copy me but hell, if someone cared so much 2 screenshot and colour my pixel horse i'd be pretty flattered!
+  I dont mind when people talk to me, actually i really like when people interact so my apologies if I come off as unapproachable I do appreciate it very much. C+h is welcomed! Obviously dnc or whatever but when i really think about it I dont care that much. It isnt an outlet ENCOURAGING people 2 copy me but hell, if someone cared so much 2 screenshot and recolour my pixel horse i'd be pretty flattered!
 <p align="center">
   Thanks for reading... Have a good day / evening / night wherever you may be.
 <p align="center">
